@@ -2,6 +2,12 @@ Watch PSG v Arsenal on Wednesday 7 May for a gripping semi-final second leg matc
 
 Ousmane Dembele's crucial strike from the first leg remains the only difference between the two sides, with the Gunners now having to yield a result in Paris if they stand a chance of progressing to this year's final.
 
+[🔴🌍📺📱👉WA𝚃CH==►► 𝙲𝙻𝙸𝙲𝙺 𝙷𝙴𝚁𝙴 𝚃𝙾 WATCH LIVE TV](https://ucl-news-update-hd.blogspot.com/)
+
+[🔴🌍📺📱👉WA𝚃CH Now==►► CLICK HERE TO WATCH LIVE](https://ucl-news-update-hd.blogspot.com/)
+
+# [![WATCH LIVE](https://i.imgur.com/dJHk4Zq.gif)](https://ucl-news-update-hd.blogspot.com/)
+
 Here, FourFourTwo brings you all the information on how to watch PSG v Arsenal online and on TV, wherever you are in the world.
 
 Key information
